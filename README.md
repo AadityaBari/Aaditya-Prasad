@@ -1,4 +1,4 @@
-# Hi, I'm Aaditya 👋
+# Hi, I'm Aaditya 👋 
 
 ## 🎓 About Me
 
